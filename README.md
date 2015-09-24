@@ -1,1 +1,0 @@
-# qandu_splash
